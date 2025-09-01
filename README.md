@@ -1,0 +1,1 @@
+# Ger-ncia-De-Configura-o-E-Manuten-o-De-Software---HQ2
